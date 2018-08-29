@@ -1,0 +1,1 @@
+# Lightpoint-test-task
